@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @soul-alena
+- 👋 Hi, I’m Alena
 - 👀 I’m interested in IT
 - 🌱 I’m currently learning "International University of Technology" majoring in "computer engineering"
 - 📫 How to reach me https://t.me/Alenk_a
